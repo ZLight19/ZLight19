@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZLight19
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning Python
+- 📫 How to reach me light.zain9@gmail.com
+- ⚡ Fun fact: ZLight19 is ✨ special ✨
